@@ -1,0 +1,1 @@
+generator of shitty NFT
